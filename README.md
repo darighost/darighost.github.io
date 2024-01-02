@@ -1,3 +1,0 @@
-# darighost.github.io
-
-~
